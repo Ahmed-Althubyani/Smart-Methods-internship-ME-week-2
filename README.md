@@ -1,0 +1,1 @@
+# Smart-Methods-internship-ME-week-2
